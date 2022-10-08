@@ -1,5 +1,5 @@
-Here you can say lots of fun things about your site.
+https://studentsite.gunadarma.ac.id/
 
-Maybe say a some things about yourself.
+https://ilab.gunadarma.ac.id/
 
-Or maybe what you plan to blog about.
+https://baak.gunadarma.ac.id/
